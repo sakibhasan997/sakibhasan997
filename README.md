@@ -22,7 +22,7 @@
 
 - 📫 How to reach me **sakibhasan4772@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ct1EjQf00-uqMEU0ELP0PfvM8EpxQq8W/view?usp=sharing](https://drive.google.com/file/d/1ct1EjQf00-uqMEU0ELP0PfvM8EpxQq8W/view?usp=sharing)
+- 📄 Know about my experience [My Resume](https://drive.google.com/file/d/1ct1EjQf00-uqMEU0ELP0PfvM8EpxQq8W/view?usp=sharing)
 
 - ⚡ Fun fact **I think I am funny**
 
